@@ -10,6 +10,8 @@
 
 ### [仲恺遂溪同乡会基金会](http://www.baidu.com)
 
+## [活动](https://github.com/zhkusuixi/zhkusuixi.github.io/blob/master/HistoryEvents.md)
+
 ## 传统
 
 ### 送旧晚会
